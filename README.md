@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-  <sub>link⠀link⠀link</sub>
+  <sub>Prince⠀he/they⠀EAsian</sub>
 </p>
